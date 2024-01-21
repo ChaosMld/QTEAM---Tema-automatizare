@@ -1,0 +1,1 @@
+# QTEAM---Tema-automatizare
